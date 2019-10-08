@@ -1,2 +1,0 @@
-# hactker
-salam kenal all 
